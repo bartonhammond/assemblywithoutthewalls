@@ -10,9 +10,9 @@ May our Wonderful God guide your learning and richly bless you and yours!
 
 ## Our Teacher - Jacob Stone
 
-Jacob has been given a background and experience very very few Bible teachers have. Jacob’s powerful, deep & very insightful teaching – always in context – and always directly for you from the incredibly rich **Biblical Hebrewa88 & often **Hebraic/Jewish Koine Greek** text, opens up your **Hebrew Roots** & **Jewish Roots** – and much more(!) – as never before! He includes rich insights that you can apply and will bless your life!
+Jacob has been given a background and experience very very few Bible teachers have. Jacob’s powerful, deep & very insightful teaching – always in context – and always directly for you from the incredibly rich **Biblical Hebrewa** & often **Hebraic/Jewish Koine Greek** text, opens up your **Hebrew Roots** & **Jewish Roots** – and much more(!) – as never before! He includes rich insights that you can apply and will bless your life!
 
-## Example Teachings from Jacob
+## Example Teachings from Jacob Stone
 
  - Why Jacob teaches from the original languages
 
