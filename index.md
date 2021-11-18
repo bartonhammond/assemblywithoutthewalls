@@ -1,3 +1,5 @@
+## Welcome
+
 If you love the **Word** and you’re serious about it, or thirsting to know more of God and hungry to learn, we humbly believe the **LORD** has led you to the right place!
 
 On our site may you find **food** for thought and **drink** for a thirsty soul.
