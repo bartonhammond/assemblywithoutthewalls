@@ -1,8 +1,6 @@
-## Welcome to Assembly Without The Walls
+If you love the **Word** and you’re serious about it, or thirsting to know more of God and hungry to learn, we humbly believe the **LORD** has led you to the right place!
 
-If you love the **Word** and you’re serious about it, or thirsting to know more of God and hungry to learn, we humbly believe the LORD has led you to the right place!
-
-On our site may you find food for thought and drink for a thirsty soul
+On our site may you find **food** for thought and **drink** for a thirsty soul.
 
 May our Wonderful God guide your learning and richly bless you and yours!
 
@@ -10,16 +8,17 @@ May our Wonderful God guide your learning and richly bless you and yours!
 
 Jacob has been given a background and experience very very few Bible teachers have. Jacob’s powerful, deep & very insightful teaching – always in context – and always directly for you from the incredibly rich Biblical Hebrew & often Hebraic/Jewish Koine Greek text, opens up your Hebrew Roots & Jewish Roots – and much more(!) – as never before! He includes rich insights that you can apply and will bless your life!
 
-### Example Teachings from Jacob
+## Example Teachings from Jacob
 
-1. Why Jacob teaches from the original languages
+ - Why Jacob teaches from the original languages
 
 ![Original Language](/assets/images/shot1.png)
 
 
-2. Who do you say that I am? Mt. 16:13-16
+ - Who do you say that I am? Mt. 16:13-16
 
 ![Who do you say I am?](/assets/images/shot2.png)
+
 
 ---
 
