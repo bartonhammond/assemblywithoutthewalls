@@ -27,5 +27,7 @@ Jacob has been given a background and experience very very few Bible teachers ha
 ---
 
 
-BE BLESSED! – A portion of your kind support or gift to our work is donated to help blind, multi handicapped children in Israel, poor Jews in Israel – the People Yeshua came through and is still part of (Cf. Mt.1:1- 17; cf. Rev.5:5 etc. etc) – and, we give to help others.
+## Be blessed
+
+A portion of your kind support or gift to our work is donated to help blind, multi handicapped children in Israel, poor Jews in Israel – the People Yeshua came through and is still part of (Cf. Mt.1:1- 17; cf. Rev.5:5 etc. etc) – and, we give to help others.
 
