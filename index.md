@@ -1,37 +1,28 @@
-## Welcome to GitHub Pages
+## Welcome to Assembly Without The Walls
 
-You can use the [editor on GitHub](https://github.com/bartonhammond/assemblywithoutthewalls/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+If you love the **Word** and you’re serious about it, or thirsting to know more of God and hungry to learn, we humbly believe the LORD has led you to the right place!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+On our site may you find food for thought and drink for a thirsty soul
 
-### Markdown
+May our Wonderful God guide your learning and richly bless you and yours!
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+## Our Teacher - Jacob Stone
 
-```markdown
-Syntax highlighted code block
+Jacob has been given a background and experience very very few Bible teachers have. Jacob’s powerful, deep & very insightful teaching – always in context – and always directly for you from the incredibly rich Biblical Hebrew & often Hebraic/Jewish Koine Greek text, opens up your Hebrew Roots & Jewish Roots – and much more(!) – as never before! He includes rich insights that you can apply and will bless your life!
 
-# Header 1
-## Header 2
-### Header 3
+### Example Teachings from Jacob
 
-- Bulleted
-- List
+1. Why Jacob teaches from the original languages
 
-1. Numbered
-2. List
+![Original Language](/assets/images/shot1.png)
 
-**Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
-```
+2. Who do you say that I am? Mt. 16:13-16
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+![Who do you say I am?](/assets/images/shot2.png)
 
-### Jekyll Themes
+---
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/bartonhammond/assemblywithoutthewalls/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
-### Support or Contact
+BE BLESSED! – A portion of your kind support or gift to our work is donated to help blind, multi handicapped children in Israel, poor Jews in Israel – the People Yeshua came through and is still part of (Cf. Mt.1:1- 17; cf. Rev.5:5 etc. etc) – and, we give to help others.
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
